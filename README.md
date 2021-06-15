@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rakib-Nawaz
+- 👀 I’m interested in Tech Shit
+- 🌱 I’m currently learning HTML
+- 💞️ I’m looking to something to learn
+- 📫 How to reach me, just give a knock on @Rakib-Nawaz
